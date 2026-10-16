@@ -1,1 +1,1 @@
-https://key.prosvet.top/sub?token=AvrecgbCK_KRYpMtpuy_7zPVWjpUi1p-p1mNqMDo3sN6rnBUD3aDgOpXhyhwvC3viDAPqXyWPZ_3VC9zJL3k
+https://key.prosvet.top/sub?token=jgbJJA1XRoTWBMWcujL3wo6_1EbApjyMIQqlGrgRZ2yP7-gvjalWOD5EHJQS0r7Hrqhzi3l-oZBUUplzHws6
